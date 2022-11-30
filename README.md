@@ -1,0 +1,1 @@
+# Malaysian-General-Election-Results-2022
